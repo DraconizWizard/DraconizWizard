@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @DraconizWizard
+- 👀 I’m interested in Minecraft
+- 🌱 I’m currently learning how to mod minecraft
+- 💞️ I’m looking to collaborate on nothing yet
+- 📫 How to reach me... Don't
+- 😄 Pronouns: He/Him
