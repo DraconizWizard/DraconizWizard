@@ -1,6 +1,7 @@
 - 👋 Hi, I’m @DraconizWizard
 - 👀 I’m interested in Minecraft
 - 🌱 I’m currently learning how to mod minecraft
-- 💞️ I’m looking to collaborate on nothing yet
-- 📫 How to reach me... Don't
+- 💞️ I’m looking to collaborate on nothing yet :)
+- Not yet ->(however, if anyone wants to help me with the QS(QSERF) Minecraft Mod i'm working on, you can contact me below:)
+- 📫 How to reach me... tbh idk
 - 😄 Pronouns: He/Him
